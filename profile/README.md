@@ -1,4 +1,4 @@
-## Hi there 👋, please visit my original account [@Vincent-ZW](https://github.com/Vincent-ZW) which has been renamed.
+## Hi there 👋, please visit my original account [@wu-vincent](https://github.com/wu-vincent) which has been renamed.
 
 <!--
 
